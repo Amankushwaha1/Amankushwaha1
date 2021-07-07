@@ -1,4 +1,6 @@
 ### Hi there 👋
+## I am AMAN KUSHWAHA :smiley:  
+- 📫 How to reach me: ...  <a href="amankush.nov2000@gmail.com" target ="_blank">📫 </a>
 
 <!--
 **Amankushwaha1/Amankushwaha1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
