@@ -12,7 +12,7 @@
 - CGPA: **8.05/10**
 
 
-## RESUME 📄 : <a href="https://drive.google.com/file/d/1s_7L_wdA2c-_DzTv9dKp1A-8HNVbGlLL/view?usp=sharing" target="_balnk"> view</a>
+## RESUME 📄 : <a href="https://drive.google.com/file/d/1AttNqZNgLMuk68VrKPvSsFrDC57G5TyA/view?usp=sharing" target="_balnk"> view</a>
 
 
 <!--
