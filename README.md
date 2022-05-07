@@ -8,11 +8,11 @@
 ## EDUCATION 🏛
 #### NATIONAL INSTITUTE OF TECHNOLOGY (NIT), RAIPUR      
 - B.Tech in Computer Science and Engineering (**CSE**)
-- (2018-Ongoing)
-- CGPA: **8.05/10**
+- (2018-2022)
+- CGPA: **8.2/10**
 
 
-## RESUME 📄 : <a href="https://drive.google.com/file/d/1ZC3xccd3ichD8-TwJvwB1GmEGGSy5nn1/view?usp=sharing" target="_balnk"> view</a>
+## RESUME 📄 : <a href="https://drive.google.com/file/d/1HOXEHAYdbXMLmKuGvpaE63iBtET-LuLM/view?usp=sharing" target="_balnk"> view</a>
 
 
 <!--
